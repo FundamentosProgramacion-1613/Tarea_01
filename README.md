@@ -9,8 +9,10 @@
  * No había dos mujeres juntas.
 
 ¿Quién se sentaba entre Basilio y Armando?
+La mujer de Dionisio
 
 :camera: Sube una foto con el dibujo que te ayudó a resolver el problema.
+
 
 
 #####B. El IMC (índice de masa corporal) es una relación del peso y la estatura de una persona.
